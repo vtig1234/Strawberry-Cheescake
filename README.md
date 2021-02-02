@@ -1,0 +1,2 @@
+__*Strawberry Cheescake Recipe*__
+This recipe is on how to make the most perfect, delicous and creamy cheescake you have ever made, as well as giving you the added bonus of strawberries. This recipe is no bake, so you do not need an oven in order to make it, and it will take around 1 and a half hours to make, but it wall also need to chill in the fridge overnight
